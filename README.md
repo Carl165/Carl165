@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Carl165
+- 👋 Hi, I’m Carl165
 - 👀 I’m interested in ...bot development
 - 🌱 I’m currently learning ...Programming
 - 💞️ I’m looking to collaborate on ...
