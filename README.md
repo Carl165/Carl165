@@ -7,6 +7,10 @@
 - 📫 How to reach me ...254740271632
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...am 19yrs old
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+A cool wabot developer from 254✅️
+<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+
 
 <!---
 Carl165/Carl165 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
