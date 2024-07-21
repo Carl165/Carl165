@@ -1,3 +1,5 @@
+# CARL README
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=HELLO+THIS+IS+CARL+README)](https://git.io/typing-svg)
 - 👋 Hi, I’m Carl165
 - 👀 I’m interested in ...bot development
 - 🌱 I’m currently learning ...Programming
