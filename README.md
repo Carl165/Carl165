@@ -6,7 +6,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...254740271632
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...am 19yrs old
+- ⚡ Fun fact: ...am 16yrs old
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 A cool wabot developer from 254✅️
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
